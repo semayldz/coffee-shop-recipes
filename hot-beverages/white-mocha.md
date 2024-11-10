@@ -25,7 +25,7 @@
 
 ### Step 4
 
-- Froth 2% milk using your preferred method.
+- Froth whole milk using your preferred method.
 
 ### Step 5
 
