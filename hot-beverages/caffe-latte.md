@@ -7,7 +7,7 @@
 - 1 oz espresso roast
 - 1 cup almond milk
 - Milk frother
-- 1 spoon sweetener
+- 1 spoon sugar
 
 ## How to Make Caffè Latte
 
@@ -17,7 +17,7 @@
 
 ### Step 2
 
-- Stir in optional sweetener.
+- Stir in optional sugar.
 
 ### Step 3
 
