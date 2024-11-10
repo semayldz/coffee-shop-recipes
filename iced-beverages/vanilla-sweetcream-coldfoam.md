@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 8 oz Breakfast Blend
+- 8 oz Cold Brew
 - 1/4 cup of 2% milk
 - 1 Tbsp powdered sugar
 - 1/4 tsp vanilla extract
@@ -14,7 +14,7 @@
 
 ### Step 1
 
-- Brew Breakfast Blend at double strength and pour over ice.
+- Brew Cold Brew at double strength and pour over ice.
 
 ### Step 2
 
