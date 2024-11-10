@@ -9,7 +9,6 @@
 - 3/4 cup whole milk
 - 2 Tbsp dark chocolate sauce/syrup
 - Whipped cream
-- Chocolate shavings
 
 ## How to Make Mocha Frozen Blended Coffee​
 
